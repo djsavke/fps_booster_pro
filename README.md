@@ -1,3 +1,6 @@
+BUY ME A COFFEE / ČASTI ME KAFOM:
+https://streamlabs.com/djsavkeofficial/tip
+
 Savke FPS Booster PRO — v6.0 ULTIMATE SMOOTH
 
 Sadrzi:
